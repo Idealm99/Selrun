@@ -1,4 +1,4 @@
-![image.png](attachment:8e1c0b8a-6da2-4404-bdc3-b251c323c512:image.png)
+![image](https://github.com/user-attachments/assets/9598380f-4866-4d86-80eb-192699263de6)
 
 ## 🏃‍♂️ Selrun – 나만의 페이스로, 나만의 레이스를
 
